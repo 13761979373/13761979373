@@ -2,6 +2,10 @@
 - 👀 I’m a student
 - 🌱 I’m currently learning ...
 - 📫 Email:2589896292@qq.com
+- 
+
+https://github.com/13761979373/13761979373/assets/141202893/ba2e483d-4024-4daf-8bec-9cf6a318b94a
+
 
 
 https://github.com/13761979373/13761979373/assets/141202893/0959aea2-d520-41f3-826f-b9deb53b718b
